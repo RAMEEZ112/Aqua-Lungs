@@ -1,2 +1,3 @@
 # Aqua-Lungs
 Aqua Lungs
+Aqua Lung puts the endless wonder of the ocean at your fingertips. When you select Aqua Lung dive gear, you’re getting over 70 years of dive gear innovation to help you have fun and keep you safe while diving. Creating new solutions to meet the demands of scuba divers like you is what drives us every day. Whether that’s making new strides in comfortable scuba fins or incorporating the latest technology into our diving computers, we lead the scuba gear industry by keeping the customer—you—in mind with every innovation. For first-time divers and scuba enthusiasts alike, we’re confident that once you choose Aqua Lung, you’ll let us accompany you every time.
